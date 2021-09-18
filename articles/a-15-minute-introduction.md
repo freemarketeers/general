@@ -8,7 +8,9 @@
 
 1974 Nobel Laureate in Economics F.A. Hayek can be considered the first person in the history of mankind to provide a complete evolutionary understanding of how the world works. Hayek is still is so far ahead of our times that even today’s leading thinkers like renowned York Times bestselling science writer Matt Ridley are, by their own admission, ‘still catching up with him’. Ridley humbly acknowledges this in a 2011 speech where he mentions:
 
->”As someone who came to Fredrick von Hayek comparatively late in life, I’m still catching up with him…Indeed, many of the insights I thought I had discovered in my own readings and writings on the frontier of evolutionary biology and economics it turns out Hayek had long before me…It’s Hayek who first puts it all together.” — Matt Ridley
+[![Matt Ridley](https://img.youtube.com/vi/pG-grkJPU8Q/0.jpg)](https://www.youtube.com/watch?v=pG-grkJPU8Q)
+
+>”As someone who came to Fredrick von Hayek comparatively late in life, I’m still catching up with him…Indeed, many of the insights I thought I had discovered in my own readings and writings on the frontier of evolutionary biology and economics it turns out Hayek had long before me…It’s Hayek who first puts it all together.” — [Matt Ridley](https://www.youtube.com/watch?v=pG-grkJPU8Q)
 
 
 So how does Hayek ‘puts it all together’? Hayek realized that if one understands how information coordinates the biological and social orders then one understands how the entire world works. Let’s briefly try to get a feel for how Hayek saw the world and how dangerously lost we are without his (and friends’) wisdom.
